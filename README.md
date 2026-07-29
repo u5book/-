@@ -27,16 +27,23 @@ U5book 致力于打造：
 ---
 
 ## 网站地址
+
 尤物百科官网最新地址
+
 官网最新地址：（更新时间：2026/07/29）
+
 尤物百科最新入口（无要VPN）：https://u5book3.com
+
 尤物百科永久地址（需要VPN）：https://u5book.com
+
 尤物百科TG官方群: https://t.me/u5book999
+
 尤物百科官方用户群：https://t.me/jpsister
 
 
 失联后如何获取最新地址：
-方法1：邮箱发送任意邮件至 尤物百科 官方邮箱可获取最新地址
+
+邮箱发送任意邮件至 尤物百科 官方邮箱可获取最新地址
 
 ## 社交媒体
 
@@ -51,6 +58,7 @@ https://t.me/jpsister
 **Email:**
 
 牢记官方邮箱：u5book999@gmail.com
+
 牢记官方邮箱：u5book88@gmail.com
 
 Telegram公告频道:https://t.me/u5book999

@@ -13,7 +13,7 @@
 
 官网最新地址：（更新时间：2026/07/31）
 
-尤物百科最新入口（国内访问）：https：//u5book3.com
+尤物百科最新入口（国内访问）：[https：//u5book3.com](https://u5book3.com)
 
 尤物百科永久地址（国外访问）：https://u5book.com
 
